@@ -1,1 +1,1 @@
-assignment from inpro for fresher Orecruitment
+assignment from inpro for fresher recruitment
